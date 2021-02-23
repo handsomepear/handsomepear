@@ -1,4 +1,4 @@
-### Hi 我是pear 👋
+### Hi, I am Zack 👋
 
 Here are some ideas to get you started:
 
